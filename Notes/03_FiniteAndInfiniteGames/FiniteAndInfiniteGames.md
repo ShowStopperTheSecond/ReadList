@@ -260,10 +260,34 @@ form of attempting to eliminate evil elsewhere.
 - One cannot be human by oneself.
 
 
+
 - We do not relate to others as the persons we are; we are who we are in relating to others.
 
 - Only that which can change can continue: this is the principle by which infinite
 players live.
+
+- Even the open playfulness of children is
+exploited through organized athletic, artistic, and educational regimens
+as a means of preparing the young for serious adult competition.
+
+
+- Just as infinite play cannot be contained within finite play, culture
+cannot be authentic if held within the boundaries of a society.
+
+
+- Society and culture are therefore not true opponents of each other.
+Rather society is a species of culture that persists in contradicting itself,
+a freely organized attempt to conceal the freedom of the organizers and
+the organized, an attempt to forget that we have willfully forgotten our
+decision to enter this or that contest and to continue in it.
+
+- Heroes of lost battles are almost never memorialized.
+
+- how to contain the serious within the
+truly playful; that is, how to keep all our finite games in infinite play.
+This challenge is commonly misunderstood as the need to find room
+for playfulness within finite games.
+
 
 - Theycan see that the dream of freedom is universal, that wars are fought to
 win it, heroes die to protect it, and songs are written to commemorate
@@ -354,7 +378,10 @@ is emblematic. It recalls to others those areas in which our victories are
 beyond challenge.
 
 - Property may be stolen, but the thief does not therefore own it.
-Ownership can never be stolen.
+Ownership can never be stolen. Titles are timeless, and so is the
+ownership of property.
+
+- The thief means to win the title, believing that those things to which Iclaim title belong to no one and are there for the taking
 
 - One reason for the necessity of a society is its role in ascribing and
 validating the titles to property. “The great and chief end therefore, of
@@ -365,6 +392,9 @@ of nature there are many things wanting” (Locke).
 - There is no effective pattern of entitlement in a society short of the free agreement
 of all opponents that the titles to property are in the hands of the actual
 winners.
+
+- We do not proceed through a traffic intersection
+because the signal changes, but when the signal changes.
 
 - a society's rules and regulations are only effective because people have agreed to follow them. The agreement to abide by these rules gives them the force to govern behavior. In other words, people who willingly participate in a society accept the constraints imposed by that society as necessary guidelines for how to act within it. However, if people do not consent to the rules of a society, they will not see them as helpful guidelines but as oppressive and will resist or oppose them.
 
@@ -406,7 +436,9 @@ precompetitive status. One is compensated for the amount of time spent
 - There is a second theatrical requirement that falls on the owners of
 property. Once they have drawn attention to what they have lost in
 acquiring what they own, they must then consume what they have
-gained in a way that recovers the loss.
+gained in a way that recovers the loss.The intuitive principle here is that
+we cannot be justified in owning what we do not need to use or plan to
+use.
 
 
 
@@ -422,6 +454,12 @@ activity that can convince all observers that the possesser’s title to it is
 no longer in question
 
 
+- After athletic contests in which major titles have been at stake, it
+is common for the audience to lift the winners to their shoulders,
+marching them about as if they were helpless—in the sharpest possible
+contrast to the physical skill and energy they have just displayed.
+
+
 - Consumption is an activity so different from gainful labor that it
 shows itself in the mode of leisure, even indolence. We display the
 success of what we have done by not having to do anything. The more
@@ -435,12 +473,27 @@ as such than by theater, then societies become acutely dependent on
 their artists—what Plato called poietai: the storytellers, the inventors,
 sculptors, poets, any original thinkers whatsoever
 
+- But any policy of forceful restraint so extreme that it requires an
+officer for each potential criminal is a formula for quick descent into
+social chaos.
+
+
+- If wealth and might are to be performed, great wealth and great
+might must be performed brilliantly.
+
 - While societal thinkers may not overlook the importance of poiesis,
 or creative activity, neither may they underestimate its danger, for the
 poietai are the ones most likely to remember what has been forgotten—
 that society is a species of culture.
 
 
+
+- The deepest and most consequent struggle of each society is therefore
+not with other societies, but with the culture that exists within itself—
+the culture that is itself
+
+- Conflict with other societies is, in fact, an
+effective way for a society to restrain its own culture
 
 - Powerful societies do not silence their poietai in order that they may go to war; they go to
 war as a way of silencing their poietai.
@@ -495,6 +548,13 @@ nothing in the horizon itself, however, that limits vision, for the horizon
 opens onto all that lies beyond itself. What limits vision is rather the
 incompleteness of that vision.
 
+- We are never somewhere in relation to the horizon since the horizon
+moves with our vision. We can only be somewhere by turning away from
+the horizon, by replacing vision with opposition, by declaring the place
+on which we stand to be timeless—a sacred region, a holy land, a body
+of truth, a code of inviolable commandments. To be somewhere is to
+absolutize time, space, and number.
+
 
 - Every move an infinite player makes is toward the horizon. Every
 move made by a finite player is within a boundary. Every moment of an
@@ -516,11 +576,22 @@ adoption of a tradition makes it a new tradition—just as the family into
 which a child is born existed prior to that birth, but is nonetheless a new
 family after the birth.
 
+- Any culture that continues to influence our vision
+continues to grow in the very exercise of that influence
+
 
 - Since a culture is not anything persons do, but anything they do with
 each other, we may say that a culture comes into being whenever
 persons choose to be a people. It is as a people that they arrange their
 rules with each other, their moralities, their modes of communication.
+
+
+- A culture is sometimes opposed by suppressing its ideas, its works,
+even its language. This is a common strategy of a society afraid of the
+culture growing within its boundaries. But it is a strategy certain to fail,
+because it confuses the creative activity (poiesis) with the product
+(poiema) of that activity.
+
 
 
 - Societies characteristically separate the ideas from their thinkers, the
@@ -529,6 +600,13 @@ power to certain ideas as though they had an existence of their own
 independent from those who think them, even those who first produced
 them. In fact, a society is likely to have an idea of itself that no thinker
 may challenge or revise.
+
+- A people, as a people, has nothing to defend. In the same way a
+people has nothing and no one to attack. One cannot be free by
+opposing another. My freedom does not depend on your loss of
+freedom. On the contrary, since freedom is never freedom from society,
+but freedom for it, my freedom inherently affirms yours.
+A people has no enemies.
 
 - For a bounded, metaphysically veiled, and destined society, enemies
 are necessary, conflict inevitable, and war likely.
@@ -542,6 +620,33 @@ more attentive and obedient to the finite structures of their society: “just
 as the blowing of the winds preserves the sea from the foulness which
 would be the result of a prolonged calm, so also corruption in nations
 would be the product of prolonged, let alone ‘perpetual’ peace” (Hegel).
+
+
+- Finite players
+go to war against states because they endanger boundaries; infinite
+players oppose states because they engender boundaries.
+
+
+- The strategy of finite players is to kill a state by killing the people
+who invented it. Infinite players, however, understanding war to be a
+conflict between states, conclude that states can have only states as
+enemies; they cannot have persons as enemies. “Sometimes it is possible
+to kill a state without killing a single one of its members; and war gives
+no right which is not necessary to the gaining of its object”
+
+
+- For infinite players the chief difficulty with finite players’
+commitment to war is not, however, that persons are killed. Indeed,
+finite players themselves often genuinely regret this and do as little
+killing as possible. The difficulty is that such warfare has in it the
+contradiction of all finite play. Winning a war can be as destructive as
+losing one, for if boundaries lose their clarity, as they do in a decisive
+victory, the state loses its identity
+
+
+- A war
+fought to end all wars, in the strategy of finite play, only breeds
+universal warfare. 
 
 - War presents itself as necessary for self- protection, when in fact it is
 necessary for self- identification.
@@ -569,6 +674,17 @@ The use of the word “unawares” shows Plato’s intention to keep the
 metaphysical veil intact. Those who are being led to reason cannot be
 aware of it. They must be led to it without choosing it. Plato asks his
 poets not to create, but to deceive.
+
+
+- Metaphysics is about the real but is abstract. Poetry is the making
+(poiesis) of the real and is concrete. Whenever what is made (poiema) is
+separated from the maker (poietes), it becomes metaphysical. As it
+stands there, and as the voice of the poietes is no longer listened to, the
+poiema is an object to be studied, not an act to be learned. One cannot
+learn an object, but only the poiesis, or the act of creating objects. To
+separate the poiema from poiesis, the created object from the creative
+act, is the essence of the theatrical.
+
 
 - When I speak as the genius I am, I speak these words for the first
 time. To repeat words is to speak them as though another were saying
