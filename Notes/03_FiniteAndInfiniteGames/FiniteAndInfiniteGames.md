@@ -699,6 +699,53 @@ thought or can be translated back into thought. In thinking you cast
 thoughts beyond themselves, surrendering them to that which they
 cannot be.
 
+
+- To speak, or act, or think originally is to erase the boundary of the
+self. It is to leave behind the territorial personality. A genius does not
+have a mind full of thoughts but is the thinker of thoughts, and is the
+center of a field of vision. It is a field of vision, however, that is
+recognized as a field of vision only when we see that it includes within
+itself the original centers of other fields of vision.
+
+
+- As the geniuses we are, we do not look but see.
+
+- To look at something is to look at it within its limitations. I look at
+what is marked off, at what stands apart from other things. But things
+do not have their own limitations.
+
+
+- I was not looking at the sea gulls as though it was the sea gulls
+who happened to be there—I was looking for something to make this
+example. I might have seen them as a sign that land is not far, or that
+the sea is not far; I could have been looking for a form to reproduce on
+a canvas or in a poem. To look at is to look for.
+
+
+- If to look is to look at what is contained within its limitations, to see
+is to see the limitations themselves. Each new school of painting is new
+not because it now contains subject matter ignored in earlier work, but
+because it sees the limitations previous artists imposed on their subject
+matter but could not see themselves.
+
+
+- When we pass from looking to seeing, we do not therefore lose our
+sight of the objects observed. Seeing, in fact, does not disturb our
+looking at all. It rather places us in that territory as its genius, aware
+that our imagination does not create within its outlines but creates the
+outlines themselves.
+
+- To be the genius of myself is not to bring myself into being. As the
+origin of myself I am not also the cause of myself, as though I were the
+product of my own action. But then neither am I the product of any
+other action. My parents may have wanted a child, but they could not
+have wanted me.
+I am both the outcome of my past and the transformation of my
+past.
+
+
+
+
 - Speaking in purely causal terms, I cannot say I was born; I should
 say rather that I have emerged as a phase in the process of reproduction.
 A reproduction is a repetition, a recurrence of that which has been.
@@ -708,6 +755,10 @@ say, “I was reproduced on this date and in this place.” To say “I was
 born” is to speak of myself as having an uncaused point of departure
 within the realm of the continuous, an absolute beginning not
 comprehensible to the explanatory intelligence.
+
+- As such a phenomenon birth repeats nothing; it is not the outcome
+of the past but the recasting of a drama already under way
+
 
 - Theatrically, my birth is an event of plotted repetition. I am born as
 another member of my family and my culture. Who I am is a question
@@ -727,7 +778,210 @@ take up one of the roles prepared for me: eldest son, favorite daughter,
 heir to the family’s honor, avenger of its losses.
 
 
+- Not allowing the past to be past may be the primary source for the
+seriousness of finite players. Inasmuch as finite play always has its
+audience, it is the audience to whom the finite player intends to be
+known as winner. The finite player, in other words, must not only have
+an audience but must have an audience to convince.
 
+
+- As with all finite play, an acute contradiction quickly develops at the
+heart of this attempt. As finite players we will not enter the game with
+sufficient desire to win unless we are ourselves convinced by the very
+audience we intend to convince. That is, unless we believe we actually are
+the losers the audience sees us to be, we will not have the necessary desire
+to win. The more negatively we assess ourselves, the more we strive to
+reverse the negative judgment of others. The outcome brings the
+contradiction to perfection: by proving to the audience they were
+wrong, we prove to ourselves the audience was right.
+
+
+
+- Indeed, it is only by remembering what we have forgotten that we can
+enter into competition with sufficient intensity to be able to forget we
+have forgotten the character of all play: Whoever must play cannot play.
+
+
+- Whenever we act as the genius of ourselves, it will be in the spirit of
+allowing the past to be past. It is the genius in us who is capable of
+ridding us of resentment by exercising what Nietzsche called the
+“faculty of oblivion,” not as a way of denying the past but as a way of
+reshaping it through our own originality. Then we forget that we have
+been forgotten by an audience, and remember that we have forgotten
+our freedom to play.
+
+
+- If in the culture into which we are born there are always persons who
+will urge us to theatricalize our lives by supplying us with a repeatable
+past, there will also be persons (possibly the same ones) in whose
+presence we learn to prepare ourselves for surprise. It is in the presence
+of such persons that we first recognize ourselves as the geniuses we are.
+
+
+- When actors bring themselves to tears by
+their performance, and not as their performance, they have failed their
+craft; they have become theatrically inept. 
+This means that we can be moved only by persons who are not what
+they are; we can be moved only when we are not who we are, but are
+what we cannot be.
+
+- When I am touched, I am touched only as the person I am behind all
+the theatrical masks, but at the same time I am changed from within—
+and whoever touches me is touched as well. We do not touch by design.
+Indeed, all designs are shattered by touching. Whoever touches and
+whoever is touched cannot but be surprised. (The unpredictability of
+this phenomenon is reflected in our reference to the insane as
+“touched.”)
+We can be moved only by way of our veils. We are touched through
+our veils.
+
+
+- The character of touching can be seen quite clearly in the way infinite
+players understand both healing and sexuality.
+If to be touched is to respond from one’s center, it is also to respond
+as a whole person. To be whole is to be hale, or healthy. In sum,whoever is touched is healed.
+
+- The finite player’s interest is not in being healed, or made whole, but
+in being cured, or made functional. Healing restores me to play, curing
+restores me to competition in one or another game.
+
+- To be ill is to be dysfunctional; to be
+dysfunctional is to be unable to compete in one’s preferred contests. It is
+a kind of death, an inability to acquire titles. The ill become invisible.
+Illness always has the smell of death about it: Either it may lead to
+death, or it leads to the death of a person as competitor. The dread of
+illness is the dread of losing.
+
+
+- One is never ill in general. One is always ill with relation to some
+bounded activity. It is not cancer that makes me ill. It is because I
+cannot work, or run, or swallow that I am ill with cancer. The loss of
+function, the obstruction of an activity, cannot in itself destroy my
+health. I am too heavy to fly by flapping my arms, but I do not for that
+reason complain of being sick with weight. However, if I desired to be a
+fashion model, a dancer, or a jockey, I would consider excessive weight
+to be a kind of disease and would be likely to consult a doctor, a
+nutritionist, or another specialist to be cured of it.
+
+- When I am healed I am restored to my center in a way that my
+freedom as a person is not compromised by my loss of functions. This
+means that the illness need not be eliminated before I can be healed. I
+am not free to the degree that I can overcome my infirmities, but only to
+the degree that I can put my infirmities into play. I am cured of my
+illness; I am healed with my illness.
+
+
+- Because sexuality is a drama of origins, it gives full expression to the
+genius you are and to the genius of others who participate in that
+drama. This throws a high challenge before the political ideologue.
+Aware that genuine sexual expression is at least as dangerous to society
+as genuine artistic expression, the sexual metaphysician can appeal to at
+least two powerful solutions. One is to treat sexuality as a process of
+reproduction; another is to place it in the area of feeling and behavior.
+
+
+
+- Although reproduction is a process that operates by way of our
+bodies, it nonetheless operates autonomously. Like every other natural
+process it is a phenomenon of causal continuity, having no inherent
+beginning or end. Therefore we cannot be said to initiate the process by
+any act of our own. We can only be carried along by it, inasmuch as
+conception occurs only when all the necessary conditions have been met
+by the parenting couple. No one conceives a child; a child is conceived
+in the conjunction of sperm and ovum. The mother does not give birth
+to a child; the mother is where the birth occurs.
+
+
+- A society shows its mastery in the management of sexuality not when
+it sets out unambiguous standards for sexual behavior or prescribed
+attitudes toward sexual feelings, but when it institutionalizes the
+emblematic display of sexual conquest. These institutions can be as
+varied as burning widows alive on the funeral pyres of their husbands or
+requiring the high visibility of a spouse at an elected official’s
+inauguration.
+Finite sexuality is a form of theater in which the distance between
+persons is regularly reduced to zero but in which neither touches the
+other.
+
+
+- Insofar as sexuality is a drama of origin it is original to society and
+not derivative of it. It is therefore somewhat misleading to describe
+society as a regulator of finite sexual play. It is more the case that finite
+sexuality shapes society than is shaped by it
+
+
+
+- Only to a limited extent do
+we take on the sexual roles assigned us by society. Much more
+frequently we enter into societal arrangements by way of sexual roles.
+(For example, we are more likely to refer to the king as the father of the
+country than we are to refer to the father as king of the family.) While
+society does serve a regulatory function, it is probably more correctly
+understood as sexuality making use of society to regulate itself.
+
+
+- This means that society plays little or no role in either causing or
+preventing sexual tensions. On the contrary, society absorbs sexual
+tensions into all of its structures.
+
+
+- Society iswhere we prove to parents qua audience that we are not what we
+thought they thought we were. Since the emphasis in this relationship is
+not on what our parents thought of us but on what we thought they
+thought, they become an audience that easily survives their physical
+absence or death. Moreover, for the same reason they become an
+audience whose definitive approval we can never win
+
+
+- There is one other way in which society is shaped by the tensions of
+finite sexuality: in its orientation toward property. Since sexuality is the
+only finite game in which the winner’s prize is the loser, the most
+desirable form of property is the publicly acknowledged possession of
+another’s person, a relationship to which the possessed must of course
+freely consent. All other forms of property are considerably less
+desirable, even when they are vast in quantity. The true value of my
+property, in fact, varies not with its monetary worth but with its
+effectiveness in winning for me the declaration that I am the Master
+Player in our game with each other.
+
+
+- The most serious struggles are those for sexual property. For this
+wars are fought, lives are generously risked, great schemes are initiated.
+However, who wins empire, fortune, and fame but loses in love has lost
+in everything.
+
+
+
+-Because finite, or veiled, sexuality is one or another struggle which its
+participants mean to win, it is oriented toward moments, outcomes,
+final scenes. Like all finite play it proceeds largely by deception. Sexual
+desires are usually not directly announced but concealed under a series
+of feints, gestures, styles of dress, and showy behavior. Seductions are
+staged, scripted, costumed. Certain responses are sought, plots are
+developed. In skillful seductions delays are employed, special
+circumstances and settings are arranged.
+
+
+
+- By contrast, infinite players have no interest in seduction or in
+restricting the freedom of another to one’s own boundaries of play.
+Infinite players recognize choice in all aspects of sexuality. They may see
+in themselves and in others, for example, the infant’s desire to compete
+for the mother, but they also see that there is neither physiological norsocietal destiny in sexual patterns. Who chooses to compete with
+another can also choose to play with another
+
+
+- Sexuality is not a bounded phenomenon but a horizonal
+phenomenon for infinite players. One can never say, therefore, that an
+infinite player is homosexual, or heterosexual, or celibate, or adulterous,
+or faithful—because each of these definitions has to do with
+boundaries, with circumscribed areas and styles of play. Infinite players
+do not play within sexual boundaries, but with sexual boundaries. They
+are concerned not with power but with vision. :|
+Moving therefore from an original center, the sexual engagements of
+infinite players have no standards, no ideals, no marks of success or
+failure. Neither orgasm nor conception is a goal in their play, although
+either may be part of the play.
 
 
 
