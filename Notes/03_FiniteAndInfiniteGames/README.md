@@ -743,7 +743,7 @@ conversation with a loudspeaker.
 all possibility of conversation, is not listened to at all, and for that
 reason loses its own voice and becomes mere noise. Whenever we
 succeed in being the only speaker, there is no speaker at all
-
+s
 - Julius
 Caesar originally sought power in Rome because he loved to play the
 very dangerous style of politics common to the Republic; but he played
