@@ -84,3 +84,33 @@ is
 nothing I could buy with that money that would be more valuable
 
 
+- To give you an idea about how interwoven
+they were in my mind, Devon was named after one of the oldest breeds of
+cattle known to man, among the first breeds imported into the U.S. and
+renowned for its high fertility. (:\ wtf why would you name your son after cattles )
+
+
+- I learned (again) that no matter how much I knew and how
+hard I worked, I could never be certain enough to proclaim things like what
+I’d said on Wall $treet Week: “There’ll be no soft landing. I can say that
+with absolute certainty, because I know how markets work.” I am still
+shocked and embarrassed by how arrogant I was.
+
+
+- I learned a great fear of being wrong that shifted my mind-
+set from thinking “I’m right” to asking myself “How do I know I’m right?”
+And I saw clearly that the best way to answer this question is by finding
+other independent thinkers who are on the same mission as me and who see
+things differently from me. By engaging them in thoughtful disagreement,
+I’d be able to understand their reasoning and have them stress-test mine.
+That way, we can all raise our probability of being right.
+In other words, I just want to be right—I don’t care if the right answer
+comes from me. So I learned to be radically open-minded to allow others to
+point out what I might be missing. I saw that the only way I could succeed
+would be to:
+1. Seek out the smartest people who disagreed with me so I could try to
+understand their reasoning.
+2. Know when not to have an opinion.
+3. Develop, test, and systemize timeless and universal principles.
+4. Balance risks in ways that keep the big upside while reducing the
+downside.
