@@ -108,9 +108,11 @@ In other words, I just want to be right—I don’t care if the right answer
 comes from me. So I learned to be radically open-minded to allow others to
 point out what I might be missing. I saw that the only way I could succeed
 would be to:
-1. Seek out the smartest people who disagreed with me so I could try to
-understand their reasoning.
-2. Know when not to have an opinion.
-3. Develop, test, and systemize timeless and universal principles.
-4. Balance risks in ways that keep the big upside while reducing the
-downside.
+	1. Seek out the smartest people who disagreed with me so I could try to
+	understand their reasoning.
+	2. Know when not to have an opinion.
+	3. Develop, test, and systemize timeless and universal principles.
+	4. Balance risks in ways that keep the big upside while reducing the
+	downside.
+
+	
