@@ -7,6 +7,3 @@ Some Good Books To Read
 - Principles Life And Work (Ray Dailo)
 - Symphony of the Dead (Abbas Maroufi )
 - Sophie's World: A Novel About the History of Philosophy ( Jostein Gaarder)
-
-
-
